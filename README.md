@@ -1,0 +1,1 @@
+# standardsolution.github.io
